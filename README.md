@@ -60,6 +60,18 @@ Here’s a look at the hottest promo codes you can use to get major savings on B
 * Expiry Date: May 1, 2025.
 * How to Use the Code: Add two services to your cart and apply the code at checkout.
 
+## How To Redeem Dux-Soup Coupon?
+
+Step 1: Visit the official Blaze.ai website.
+
+Step 2: Choose your plan and click on subscribe button
+
+Step 3: Discount is applied automatically
+
+Step 4: Pay the remaining amount and complete order
+
+You have claimed the 75% discount on Blaze.ai.
+
 ### More coupons
 
 * [Dux-soup coupon](https://github.com/williamssw/Dux/)
