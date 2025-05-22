@@ -1,6 +1,6 @@
 # Blaze.ai Promo Code & Coupons (75% Off)
 
-![|602x267](https://lh7-rt.googleusercontent.com/docsz/AD_4nXe9PR-oR3SPWfULMCIBZLLOOA9E1pW-CqeKbttpkeR6fCgNnANsL6t0NVYZ1DeN1dYE8Fb7R9dd8M0gwEWR1K2qbubCRh0nQLRo0px2UT1eSBdlEe4Gs4ji_kgTToPSxWBZJ_g-?key=e5Jai1o9OCLKmbPlSjDSzQ)
+[![|602x267](https://lh7-rt.googleusercontent.com/docsz/AD_4nXe9PR-oR3SPWfULMCIBZLLOOA9E1pW-CqeKbttpkeR6fCgNnANsL6t0NVYZ1DeN1dYE8Fb7R9dd8M0gwEWR1K2qbubCRh0nQLRo0px2UT1eSBdlEe4Gs4ji_kgTToPSxWBZJ_g-?key=e5Jai1o9OCLKmbPlSjDSzQ)](https://get.blaze.ai/?fpr=shadow)
 
 👉 Use this official link to unlock hidden discounts:[ Activate Your Blaze.ai Deal](https://get.blaze.ai/?fpr=shadow)
 
